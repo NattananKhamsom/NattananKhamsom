@@ -1,4 +1,4 @@
-## Hi there 👋 I'm Om (Nattanan Khamsom)
+## Hi there 👋 I'm Ohm (Nattanan Khamsom)
 
 💻 Coding / Programming  
 🌱 Computer Science Student  
